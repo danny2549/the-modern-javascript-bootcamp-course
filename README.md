@@ -1,1 +1,1 @@
-projects and notetaking 
+projects and notes
